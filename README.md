@@ -17,3 +17,7 @@ FLAI 平台链接 https://shareflai.com/s/01fa0f
 关于ai的各种高级使用技巧，掌握技巧，会更加色哦
 可在https://bit.ly/3HqdOlV
 购买文风、写卡、破甲技巧、酒馆安装、免费ai平台，根据商品名字购买，购买后提取图片上的字符，加上网站前缀https://bit.ly/即可获得文件
+
+边玩文章边来点美好视频作为调料
+https://afans.vip/32020-KYz?ref=32020
+美好依旧
